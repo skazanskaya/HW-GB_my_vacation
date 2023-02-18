@@ -10,5 +10,6 @@ I'll walk around center of the city together with my son etc.
 
 ## I am going to do
 
+I will visit Bulgakov's museum, I'll go to Mironov's theater etc.
 
 ## Summary of my vacation
