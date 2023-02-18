@@ -12,7 +12,7 @@ I'll walk around center of the city together with my son etc.
 
 I will visit Bulgakov's museum, I'll go to Mironov's theater etc.
 
-## Summary of my vacation
+## Results of the vacation
 
 1. I visited Bulgakov's *interesting* flat.
 
